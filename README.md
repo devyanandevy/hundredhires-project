@@ -19,7 +19,7 @@ me to complete all remaining steps without needing a local installation.
 
 ### Step 3: GitHub Account
 - Created a GitHub account at https://github.com
-- Username: devyanandevy
+- Username:devyanandevy
 
 ### Step 4: Public Repository
 - Created this public repository named `hundredhires-project`

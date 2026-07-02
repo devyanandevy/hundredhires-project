@@ -40,7 +40,7 @@ wrong, I'm not looking back.
 🎁 Normally I'm writing about startup GTM & pricing strategies. Join 84k+ 
 growth pros who subscribe to Growth Unhinged: https://lnkd.in/eGRr6_kn
 
-**Notes:** _(to be added)_
+**Notes:** Really liked that he admitted the messy parts of going solo instead of just posting a Croatia photo. Feels more trustworthy because of the "here's what sucked" list.
 
 ---
 
@@ -101,7 +101,7 @@ Today's newsletter is supported by Metronome who's hosting a 🔥 webinar on
 Thursday (tomorrow!) about how agents are changing monetization featuring 
 a special guest (*me*). Link in the comments.
 
-**Notes:** _(to be added)_
+**Notes:** This one's basically a report disguised as a LinkedIn post. Heavy on numbers, which fits his whole "data guy" positioning — probably why people trust his takes on pricing.
 
 ---
 
@@ -161,4 +161,4 @@ product or on the verge of IPO. I hope this helps you level up.
 
 #beehiivpartner
 
-**Notes:** _(to be added)_
+**Notes:** The 5 archetypes thing is genuinely useful as a framework, not just content fluff. Could actually use this to categorize which "type" of creator each of our other 9 experts is.

@@ -16,7 +16,7 @@ them for doing it wrong before.
 
 That's when the magic happens.
 
-**Notes:** _(to be added)_
+**Notes:** Short and almost feels like a personal reminder to herself more than advice to an audience — think that's part of why it's easy to relate to.
 
 ---
 
@@ -34,7 +34,7 @@ The business lesson? If you want someone's attention… follow up. They may
 not be ignoring you. They might just be gazing into a giant hole around 
 their house and softly crying.
 
-**Notes:** _(to be added)_
+**Notes:** This one made me laugh honestly. Turning a random home repair problem into a sales lesson is a good example of "chocolate" from her own framework (the podcast we transcribed).
 
 ---
 
@@ -108,4 +108,4 @@ So what's holding you back?
 
 P.S. pic felt cute. I'm no Sahil, but girl can try, right? Haha
 
-**Notes:** _(to be added)_
+**Notes:** Really long post but broken into clear sections so it doesn't feel like a wall of text. The "insight advantage" ending ties back nicely to why she's even sharing this analysis in the first place.

@@ -28,7 +28,7 @@ love, sangram
 p.s. take your family on the next work trip. you might come back with 
 more than you left with.
 
-**Notes:** _(to be added)_
+**Notes:** This one's more personal/lifestyle than his usual GTM content, but it still ties back to his brand somehow ("no work life balance" as a business lesson).
 
 ---
 
@@ -71,7 +71,7 @@ love, sangram
 p.s. the future belongs to GTM leaders who can execute (AI is just part of 
 it), not just strategize.
 
-**Notes:** _(to be added)_
+**Notes:** Bold prediction that the CMO role is dying by 2028 — not sure if I believe that fully, but it's a strong opinion that probably gets a lot of disagreement comments, which helps reach.
 
 ---
 
@@ -112,4 +112,4 @@ your take?
 
 love, sangram
 
-**Notes:** _(to be added)_
+**Notes:** The "AI multiplies whatever's already broken" line is probably the strongest one-liner across all his posts. Feels quotable.

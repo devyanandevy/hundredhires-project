@@ -40,7 +40,7 @@ final outputs.
 A few personal thoughts... This article ends with a brief philosophical 
 perspective on work, joy and AI.
 
-**Notes:** _(to be added)_
+**Notes:** Very practical, step-by-step — feels more like a tutorial than a LinkedIn post, which fits his brand as more technical/SEO-minded compared to the others.
 
 ---
 
@@ -81,7 +81,7 @@ here 👉 https://lnkd.in/gNBv-vy5
 
 Hope you can join us! Busy? Just sign up and we'll share the recording.
 
-**Notes:** _(to be added)_
+**Notes:** He's basically calling out his own industry (SEOs) which is a ballsy but effective way to get attention and position himself as different from the crowd.
 
 ---
 
@@ -123,4 +123,4 @@ Britney Muller.
 
 #offsiteAEO #digitalPR
 
-**Notes:** _(to be added)_
+**Notes:** The process is genuinely a bit tedious like he admits, but that honesty makes it feel more credible than posts that make things sound too easy.

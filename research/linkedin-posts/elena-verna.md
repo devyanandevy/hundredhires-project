@@ -37,7 +37,7 @@ else turn their tiny weird workflow into software.
 
 More thoughts on my blog here: https://lnkd.in/dqtuhyA2
 
-**Notes:** _(to be added)_
+**Notes:** She's very direct about SaaS being cheaper to build now because of AI coding tools, and honestly this take feels more grounded than most "AI changes everything" posts I've seen.
 
 ---
 
@@ -51,7 +51,7 @@ and your company right now.
 And companies - this should be the thing everyone encourages. Not the 
 thing people have to sneak in between meetings.
 
-**Notes:** _(to be added)_
+**Notes:** Shortest post out of the three but probably the easiest to screenshot and share. Sometimes less really is more on LinkedIn.
 
 ---
 
@@ -81,4 +81,4 @@ I've fallen back in love with work.
 
 #career
 
-**Notes:** _(to be added)_
+**Notes:** The IC vs manager flex thing feels like a growing narrative right now, not just her opinion — feels timed well with what's happening in tech hiring.

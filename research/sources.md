@@ -80,7 +80,7 @@ credibility before being added to this list.
 ## 9. Katelyn Bourgoin
 - LinkedIn: https://www.linkedin.com/in/katebour/
 - Verified: July 2, 2026
-- Also active on: Newsletter, Podcast (Spotify/Apple), LinkedIn
+- Also active on: Newsletter, LinkedIn, occasional podcast guest appearances
 - Status: ✅ Active, consistent posting
 - Why chosen: Founder of Customer Camp; turns customer research into 
   practical LinkedIn content frameworks.

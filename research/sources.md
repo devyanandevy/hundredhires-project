@@ -14,6 +14,7 @@ credibility before being added to this list.
 
 ## 1. Justin Welsh
 - LinkedIn: https://www.linkedin.com/in/justinwelsh/
+- Verified: July 2, 2026
 - Also active on: Newsletter
 - Status: ✅ Active, consistent posting
 - Why chosen: Built a multi-million-dollar solo business primarily through 
@@ -21,7 +22,8 @@ credibility before being added to this list.
   audience building.
 
 ## 2. Adam Robinson
-- LinkedIn: https://www.linkedin.com/in/retentionadam/
+- LinkedIn: https://www.linkedin.com/in/retentionadam
+- Verified: July 2, 2026
 - Also active on: Website, LinkedIn
 - Status: ✅ Active, consistent posting
 - Why chosen: Bootstrapped two B2B SaaS companies to $30M+ ARR using LinkedIn 
@@ -29,13 +31,15 @@ credibility before being added to this list.
 
 ## 3. Lara Acosta
 - LinkedIn: https://www.linkedin.com/in/laraacostar/
+- Verified: July 2, 2026
 - Also active on: Website, YouTube podcast, LinkedIn
 - Status: ✅ Active, consistent posting
 - Why chosen: Grew her startup Kleo to $60K MRR using only a handful of 
   LinkedIn posts. Known for storytelling-driven content approach.
 
 ## 4. Elena Verna
-- LinkedIn: https://www.linkedin.com/in/elenaverna/
+- LinkedIn: https://www.linkedin.com/in/elenaverna
+- Verified: July 2, 2026
 - Also active on: Bulletin/newsletter, LinkedIn
 - Status: ✅ Active, consistent posting
 - Why chosen: Leading voice on B2B growth strategy (PLG/SLG hybrid models), 
@@ -43,6 +47,7 @@ credibility before being added to this list.
 
 ## 5. Kyle Poyar
 - LinkedIn: https://www.linkedin.com/in/kyle-poyar/
+- Verified: July 2, 2026
 - Also active on: Newsletter (Growth Unhinged), LinkedIn
 - Status: ✅ Active, consistent posting
 - Why chosen: Data-driven insights on SaaS growth and pricing strategy, 
@@ -50,6 +55,7 @@ credibility before being added to this list.
 
 ## 6. Amanda Natividad
 - LinkedIn: https://www.linkedin.com/in/amandanat/
+- Verified: July 2, 2026
 - Also active on: Newsletter, YouTube, LinkedIn
 - Status: ✅ Active, consistent posting
 - Why chosen: VP Marketing at SparkToro; combines storytelling with customer 
@@ -57,6 +63,7 @@ credibility before being added to this list.
 
 ## 7. Sangram Vajre
 - LinkedIn: https://www.linkedin.com/in/sangramvajre/
+- Verified: July 2, 2026
 - Also active on: Newsletter, YouTube, LinkedIn
 - Status: ✅ Active, consistent posting
 - Why chosen: Co-founder of Terminus/GTM Partners; a leading voice on 
@@ -64,6 +71,7 @@ credibility before being added to this list.
 
 ## 8. Devin Reed
 - LinkedIn: https://www.linkedin.com/in/devinreed/
+- Verified: July 2, 2026
 - Also active on: Newsletter, LinkedIn (YouTube inactive ~8 months)
 - Status: ✅ Active, consistent posting (newsletter + LinkedIn only)
 - Why chosen: Content leader at Clari; strong at blending storytelling with 
@@ -71,6 +79,7 @@ credibility before being added to this list.
 
 ## 9. Katelyn Bourgoin
 - LinkedIn: https://www.linkedin.com/in/katebour/
+- Verified: July 2, 2026
 - Also active on: Newsletter, Podcast (Spotify/Apple), LinkedIn
 - Status: ✅ Active, consistent posting
 - Why chosen: Founder of Customer Camp; turns customer research into 
@@ -78,6 +87,7 @@ credibility before being added to this list.
 
 ## 10. Andy Crestodina
 - LinkedIn: https://www.linkedin.com/in/andycrestodina/
+- Verified: July 2, 2026
 - Also active on: Blog, LinkedIn
 - Status: ✅ Active, consistent posting
 - Why chosen: CMO of Orbit Media; long-standing pioneer in B2B content 

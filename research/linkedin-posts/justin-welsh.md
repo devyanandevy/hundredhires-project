@@ -1,6 +1,6 @@
 # Justin Welsh — LinkedIn Posts
 
-## Post 1 — 17 hours ago
+## Post 1 
 Link: https://www.linkedin.com/in/justinwelsh
 
 I'm basically unemployable. But for years, I chased corporate safety. Keep it 
@@ -31,11 +31,11 @@ my $15M business without wrecking my life to do it.
 
 Free to everyone here: https://buff.ly/qyPzps4
 
-**Notes:** _(to be added)_
+**Notes:** He keeps circling back to the same idea — quitting your job made him free — but frames it differently each time so it doesn't feel repetitive. Smart way to sell the same guide without sounding like a broken record.
 
 ---
 
-## Post 2 — 1 day ago
+## Post 2 
 Link: https://www.linkedin.com/in/justinwelsh
 
 Action beats intelligence. So be the "dumb" action person. The person who 
@@ -68,11 +68,11 @@ real thing.
 
 Free here: https://buff.ly/qyPzps4
 
-**Notes:** _(to be added)_
+**Notes:** Kind of ironic that a guy selling a "field manual" is telling people to stop overthinking and just act. But it works because he backs it up with his own story, not just a slogan.
 
 ---
 
-## Post 3 — 2 days ago
+## Post 3
 Link: https://www.linkedin.com/in/justinwelsh
 
 Every good thing I've built started with a slightly crazy belief in myself. 
@@ -102,4 +102,4 @@ Free here: https://buff.ly/qyPzps4
 
 Image credit: goldiealexx
 
-**Notes:** _(to be added)_
+**Notes:** This one felt the most personal of the three. The "no evidence, just belief" angle is a good hook, though I wonder how many people actually buy the guide vs just like the post and move on.

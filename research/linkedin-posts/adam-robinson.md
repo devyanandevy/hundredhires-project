@@ -55,7 +55,7 @@ I never gave up, and eventually I got one thing to hit, and then another.
 And now, this is my art. I am so grateful for having this endless canvas 
 to express myself. And I hope I never run out of paint.
 
-**Notes:** _(to be added)_
+**Notes:** This is a lot to read but it doesn't feel like a sales post at all until the very end. He's basically journaling in public, which I think is why people trust him — you see the boring years too, not just the win.
 
 ---
 
@@ -101,7 +101,7 @@ free!
 Join the MoltSets wait list here: https://lnkd.in/g8xXTCQr
 Over 2,000 people have already signed up. Beta starts soon.
 
-**Notes:** _(to be added)_
+**Notes:** Very loud, very sweary, kind of exhausting honestly, but I get why it works — it reads like he's actually mad about pricing, not performing anger for engagement.
 
 ---
 
@@ -142,4 +142,4 @@ everything you do. You'll be much better at home, and at work.
 There's really only one thing I regret about the whole situation… Not 
 quitting sooner.
 
-**Notes:** _(to be added)_
+**Notes:** Didn't expect a sobriety post from a SaaS founder account, but this is probably his best performing type of content precisely because it's not about business at all.

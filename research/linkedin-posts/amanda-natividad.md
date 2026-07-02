@@ -36,7 +36,7 @@ ok if you don't. Just do your best to do thoughtful marketing, make smart
 bets, be good to your customers, unclench your jaw, and go drink some 
 water.
 
-**Notes:** _(to be added)_
+**Notes:** She basically explains why she gives away free advice instead of gating everything, and it doesn't come off as fake modesty — feels like an actual belief, not a growth hack.
 
 ---
 
@@ -80,7 +80,7 @@ Of course, the long-term work matters. You still need the bigger strategy
 marketing needs to earn internal trust. The fastest way to do that is to 
 understand how the company grows, then make that motion work better.
 
-**Notes:** _(to be added)_
+**Notes:** This reads like she's answering a real question from a real person, not writing a generic "here's my framework" post. Makes it feel more useful.
 
 ---
 
@@ -122,4 +122,4 @@ to happen.
 It happens when you treat a launch as a rollout instead of a date on the 
 calendar.
 
-**Notes:** _(to be added)_
+**Notes:** The "launch isn't a day, it's a sequence" idea is simple but I hadn't thought about it that way before. Good one to keep in mind for the playbook later.

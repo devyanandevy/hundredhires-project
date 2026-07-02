@@ -36,7 +36,7 @@ since the early days or just showed up last week.
 And if you're still grinding it out here wondering if it's worth it... it 
 is. But not for the reasons you think.
 
-**Notes:** _(to be added)_
+**Notes:** The 100k follower milestone post is honest about the boring/hard parts too, not just a highlight reel. Liked that he admitted he still doesn't fully know why the number matters to him.
 
 ---
 
@@ -78,7 +78,7 @@ differently?
 
 #b2bmarketing #zoominfopartner
 
-**Notes:** _(to be added)_
+**Notes:** He's very upfront about being nervous/unsure if this will even work, which is different from most people who only post wins. Feels more like a real experiment log.
 
 ---
 
@@ -116,4 +116,4 @@ Your buyers don't want to be educated. They want to feel understood. Write
 content that makes them say "that's exactly what I'm going through!" — and 
 they'll never stop reading.
 
-**Notes:** _(to be added)_
+**Notes:** The Hollywood screenwriter comparison is a good hook, and the before/after example format makes the point land fast without needing to explain it too much.

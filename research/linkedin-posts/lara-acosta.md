@@ -45,7 +45,7 @@ take.
 PS: What questions do you have about LinkedIn? I'll ask them next time I 
 meet with them! Drop them 👇!
 
-**Notes:** _(to be added)_
+**Notes:** The "I met with LinkedIn" angle is a great hook because nobody can verify it easily, but also because it makes her look like an insider. Smart flex.
 
 ---
 
@@ -82,7 +82,7 @@ Don't spend another year dreaming. DO it instead.
 PS: Join my FREE 7 day challenge here: https://lnkd.in/e2cCfZeh
 Repost ♻️ if you want my goal setting template!
 
-**Notes:** _(to be added)_
+**Notes:** This is basically a mini course crammed into a post. The PS asking people to repost for the template is a small detail but probably drives a ton of extra reach.
 
 ---
 
@@ -121,4 +121,4 @@ one conversation with Circle AI away.
 
 Join the waitlist for early access: https://lnkd.in/epzG5dZa
 
-**Notes:** _(to be added)_
+**Notes:** Feels like a soft ad for Circle wrapped in a personal story. Not sure how organic this one actually is compared to her other two.
